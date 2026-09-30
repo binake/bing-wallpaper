@@ -1,5 +1,7 @@
 ## Bing Wallpaper
 
+2026-09-30 | [The blue, glacier-fed waters of the Kasilof River, Alaska, USA (© jared lloyd/Getty Images)](https://cn.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_UHD.jpg)
+
 2026-09-29 | [Sattais Katcheri Hall in Amber Fort near Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)](https://cn.bing.com/th?id=OHR.AmberHall_EN-US9930812541_UHD.jpg)
 
 2026-09-27 | [Cedar Mesa and Muley Point near Bears Ears National Monument, Utah, USA (© Jeff Clay/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BearsEars_EN-US9429791451_UHD.jpg)
